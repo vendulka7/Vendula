@@ -1,3 +1,2 @@
-prvni pokus, mozna chapu
-
-jkffjhhdksjf
+no nazdar
+no nazdar
